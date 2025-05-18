@@ -26,6 +26,7 @@ My vision is to build **technology that solves real-world problems**. I'm especi
 - 🌐 [LinkedIn](https://www.linkedin.com/in/odero-emmanuel-6853b9293/)
 - ✉️ Email: oderoemmanuel3@gmail.com
 -    X    :  @ODEROEMMAN59628
+-    https://github.com/Odero2002
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 
